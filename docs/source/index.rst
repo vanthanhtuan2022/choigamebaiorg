@@ -13,4 +13,6 @@ Email: admin@choigamebai.org
 
 Website: https://choigamebai.org/ 
 
+Author: https://choigamebai.org/phan-hung-paradise/
+
 #gamebaidoithuong #game_bai_doi_thuong #top_game_bai_doi_thuong #gamebai #top_game_bai #game_doi_thuong #gamedoithuong #taixiuonline #tai_xiu_online #nohudoithuong #no_hu_doi_thuong #bancadoithuong #ban_ca_doi_thuong #nhacaiuytin #nha_cai_uy_tin #top_nha_cai_uy_tin
